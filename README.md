@@ -1,1 +1,0 @@
-# chebyshef.github.io
